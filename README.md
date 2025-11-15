@@ -9,6 +9,8 @@ I’m here on GitHub to explore open-source tools that support writing, editing,
 accessibility, and clear communication. I also use this space to share selected 
 editorial samples and resources that align with my work.
 
+Based in California and open to remote editorial work across the U.S. and internationally.
+
 ## ✨ What I Do
 - Copy editing, content editing, proofreading (AP style, AMA style, Chicago Manual of Style)
 - Work with mobile apps, websites, digital newsletters, healthcare, magazines, social media campaigns
