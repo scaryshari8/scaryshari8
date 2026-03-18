@@ -25,10 +25,9 @@ I use GitHub to share:
 - Before/after editing demonstrations  
 - Useful writing and editing tools I've starred  
 
-*(More coming soon.)*
-
 ## 🔗 Find Me Elsewhere
 **LinkedIn:** https://www.linkedin.com/in/shari-kaplan-witaschek-2489908/
+
 **Writing samples:** https://www.ranker.com/writer/scaryshari8
 
 For collaboration or editorial inquiries, please contact me via LinkedIn.  
