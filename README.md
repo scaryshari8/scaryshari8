@@ -29,5 +29,6 @@ I use GitHub to share:
 
 ## 🔗 Find Me Elsewhere
 **LinkedIn:** https://www.linkedin.com/in/shari-kaplan-witaschek-2489908/
+**Writing samples:** https://www.ranker.com/writer/scaryshari8
 
 For collaboration or editorial inquiries, please contact me via LinkedIn.  
