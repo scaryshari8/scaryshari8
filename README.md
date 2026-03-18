@@ -1,5 +1,5 @@
 # Shari Kaplan Witaschek 
-### Professional Copy Editor • Content Editor • Proofreader • Writer • AI Content Curator  
+### Professional Copy Editor • Content Editor • Medical Editor • Proofreader • Writer • AI Content Curator  
 *(aka “Scary Shari” to friends — in the fun way!)*
 
 I'm a detail-loving (a.k.a. nerdy) editorial expert and publishing operations specialist with
@@ -12,7 +12,8 @@ editorial samples and resources that align with my work.
 Based in California and open to remote editorial work across the U.S. and internationally.
 
 ## ✨ What I Do
-- Copy editing, content editing, proofreading (AP style, AMA style, Chicago Manual of Style)
+- Copy editing, content editing, content writing, medical editing, proofreading, fact-checking, AI content curation
+- Experienced in AP Style, AMA Style, Chicago Manual of Style
 - Work with mobile apps, websites, digital newsletters, healthcare, magazines, social media campaigns
 - Clarity-focused editing and plain-language communication
 - Help writers express ideas with accuracy, warmth, and readability
