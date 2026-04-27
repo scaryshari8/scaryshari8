@@ -1,6 +1,6 @@
 # Shari Kaplan Witaschek 
 ### Professional Copy Editor • Content Editor • Medical Editor • Proofreader • Writer • AI Content Curator  
-*(aka “Scary Shari” to friends — in the fun way!)*
+*(aka “Scary Shari” to friends — in a fun way!)*
 
 I'm a detail-loving (a.k.a. nerdy) editorial expert and publishing operations specialist with
 25+ years of experience across journalism, healthcare, newsletters, digital media, and content strategy.
