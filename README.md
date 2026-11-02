@@ -1,5 +1,5 @@
 # Shari Kaplan Witaschek 
-### Professional Copy Editor • Content Editor • Medical Editor • Proofreader • Writer • AI Content Curator  
+### Professional Copy Editor • Content Editor • Medical Editor • Developmental Editor • Proofreader • AI Content Curator • Writer  
 *(aka “Scary Shari” to friends — in a fun way!)*
 
 I'm a detail-loving (a.k.a. nerdy) editorial expert and publishing operations specialist with
